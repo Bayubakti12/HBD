@@ -1,2 +1,0 @@
-# HBD
-hai Yusfita
